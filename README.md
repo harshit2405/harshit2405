@@ -4,4 +4,5 @@ I am Harshit Purwar (he/his), a Computer Science undergraduate who is passionate
 
 Apart from academics and debugging, I like to spend my time writing poems and shayaris and also making playlists of my own interest.
 
-📫 Feel free to connect with me via Linkedln!
+📫 Feel free to drop a mail at devilovens24@gmail.com
+
